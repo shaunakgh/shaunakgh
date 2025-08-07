@@ -1,3 +1,3 @@
 As if I have the effort to write a description
 https://shaunakgh.github.io
-[shaunak.gh@icloud.com](mailto:shaunak.gh@icloud.com)
+shaunak.gh@icloud.com
